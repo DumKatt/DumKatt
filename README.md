@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Hello I'm 🐈 DumKatt!
+
+Currently exploring AI on my sparetime, talk to me!
